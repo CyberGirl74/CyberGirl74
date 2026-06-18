@@ -55,4 +55,4 @@ www.linkedin.com/in/shauna-davis-a668282b2
 
 ## ⚡ Fun Fact
 
-I started college at 50 years old and am building a career in Cyber & Data Security Technology one step at a time.
+I started college at 50 years old after a career in the skilled trades and am now building a future in Cyber & Data Security Technology.
