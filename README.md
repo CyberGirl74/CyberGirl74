@@ -43,7 +43,7 @@ Documenting my journey as a Cyber & Data Security Technology student.
 - Honor Roll Student
 - Dean's List
 - Author & Publisher
-- Cyber & Data Security Technology Student
+- Storm Cyber & Data Escape Room Creator
 
 ## 🔗 Connect With Me
 
